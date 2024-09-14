@@ -4,4 +4,4 @@
 
 <h3 align="center"> — ${\textsf{\color{RoyalPurple}Y0RK / MILAN }}$ ♱ ⨾</h3>
 
-<h5 align="center"> hi !! read my strawpage and sign my gb. freaks and proship dni and hang urself :] </h5>
+<h5 align="center"> read my strawpage and sign my gb. freaks proships zionist dni (and DIE) </h5>
