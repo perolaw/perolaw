@@ -7,5 +7,6 @@
 - normally i sit either in pkmn area with my irls or right at spawn in the OP area
 
 ![zoogl](https://media1.tenor.com/m/AXftSQneL_4AAAAC/one-piece-egghead-op.gif)
-- dni if you are proship/lolishotacon/ship weirdo shit [lawlu included idgaf], zionist, or always argue with people. i cant think of anything else but im a serial hider no offense
+- dni if you are proship/lolishotacon/ship weirdo shit [lawlu included idgaf], zionist, or always argue with people.
+- i cant think of anything else but im a serial hider no offense
 - u can take inspo from my ponies but no screenshotting or copying word for word bar for bar ill kill you
