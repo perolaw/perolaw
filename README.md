@@ -1,7 +1,11 @@
-<p align="center">
-<img width="400" src="https://64.media.tumblr.com/59d33d927c602884b6b903aaee5d485b/b00778298ec02d24-dc/s2048x3072/9f1dba54a539de24e98837732af35b24e8c4aeae.pnj" alt="by dannyman66 on tumblr!">
-</p> 
+![woot](https://media1.tenor.com/m/Ig2RM4zD0uAAAAAC/one-piece-op.gif)
+### — Y0RK / MILAN ♱ ⨾
+- feel free to hide or cuddle or sit with me thats perfectly fine !!
+- usually offtab watching stuff or doing schoolwork so just whisper if u want to chat
+- my autistic ass is suuuperrrr bad at holding coversation if i dont know you that well... bear with me 😭
+- make sure to sign my guestbook and read my [strawpage](https://crossguild.straw.page) if u want more info :]
+- normally i sit either in pkmn area with my irls or right at spawn in the OP area
 
-<h3 align="center"> — ${\textsf{\color{RoyalPurple}Y0RK / MILAN }}$ ♱ ⨾</h3>
-
-<h5 align="center"> read my strawpage and sign my gb. freaks proships zionist dni (and DIE) </h5>
+![zoogl](https://media1.tenor.com/m/AXftSQneL_4AAAAC/one-piece-egghead-op.gif)
+- dni if you are proship/lolishotacon/ship weirdo shit [lawlu included idgaf], zionist, or always argue with people. i cant think of anything else but im a serial hider no offense
+- u can take inspo from my ponies but no screenshotting or copying word for word bar for bar ill kill you
