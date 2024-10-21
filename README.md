@@ -8,6 +8,5 @@
 
 ![zoogl](https://media1.tenor.com/m/AXftSQneL_4AAAAC/one-piece-egghead-op.gif)
 - dni if you are proship/lolishotacon/ship weirdo shit [lawlu included idgaf], zionist, or always argue with people
-- id prefeerr if i interacted with people at least 16+ but do not make sexual/suggestive jokes with me if ur younger than like 16 or 17 !! thank u 
 - i cant think of anything else but im a serial hider no offense
 - u can take inspo from my ponies but no copying word for word bar for bar ill kill you
