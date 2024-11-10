@@ -7,6 +7,8 @@
 - normally i sit either in 18+ pkmn area/docks with my irls, right at spawn in the OP area, or market on safe
 
 ![zoogl](https://media1.tenor.com/m/AXftSQneL_4AAAAC/one-piece-egghead-op.gif)
-- dni if you are proship/lolishotacon/ship weirdo shit [lawlu included idgaf], zionist, or always argue with people
+- dni if you are proship/lolishotacon/ship weirdo shit [lawlu namirobin sanpudd included idgaf], zionist, or always argue with people
+- roleplaying is fine if its not serious its fun
 - i cant think of anything else but im a serial hider no offense
 - u can take inspo from my ponies but no copying word for word bar for bar ill kill you
+- ask me about my rarepair/polycule ships... please....
