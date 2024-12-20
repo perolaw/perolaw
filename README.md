@@ -1,7 +1,7 @@
 (if u didnt come from ponytown idk how else u got here lawl hi)
 
 ![woot](https://media1.tenor.com/m/Ig2RM4zD0uAAAAAC/one-piece-op.gif)
-### — Y0RK / MILAN ♱ ⨾
+### — Y0RK / MAVIS ♱ ⨾
 - feel free to hide or cuddle or sit with me thats perfectly fine !!
 - usually offtab so just whisper if u want to chat
 - my autistic ass is suuuperrrr bad at holding coversation if i dont know you that well... bear with me 😭
