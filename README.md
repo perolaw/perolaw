@@ -8,12 +8,12 @@
 - my autistic ass is suuuperrrr bad at holding coversation if i dont know you that well... bear with me 😭
 - very fixated on one piece (and jojo,,, its like a sleeper agent) so i'm willing to talk about them at anytime with whoever :]
 - make sure to sign my atabook and [strawpage](https://shirapudd.straw.page ) :D (tailored for twitter but idc im not making two)
-- normally i sit either in pkmn/dandy area with my irls, docks, at spawn in the OP area on 18+, or docks on safe
-
+- normally i sit either in pkmn/dandy area with my irls, at spawn in the OP area on 18+, or docks on safe
+- ask me about my rarepair/polycule ships please dot dot dot.. (feel free to sit in ship skins with me :3)
+  
 ![zoogl](https://media1.tenor.com/m/AXftSQneL_4AAAAC/one-piece-egghead-op.gif)
 - dni if you are proship/lolishotacon/ship gross stuff [lawlu namirobin sanpudd etc included theyre WEIRD idc!!!], zionist, or always argue with people
 - basically dont be a weirdo and we will get along just fine (𝓯𝓻𝓮𝓪𝓴s always welcome 👅👅)
 - i cant think of anything else but im a serial hider no offense
 - roleplaying is fine if its not super serious and its jokingful
 - u can take inspo from my ponies but no copying word for word bar for bar ill explode you
-- ask me about my rarepair/polycule ships please dot dot dot.. (p.s. feel free to sit in ship skins with me :3)
