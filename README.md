@@ -12,8 +12,8 @@
 - ask me about my rarepair/polycule ships please dot dot dot.. (feel free to sit in ship skins with me :3)
   
 ![zoogl](https://media1.tenor.com/m/AXftSQneL_4AAAAC/one-piece-egghead-op.gif)
-- dni if you are proship/lolishotacon/ship gross stuff [lawlu namirobin sanpudd etc included theyre WEIRD idc!!!], zionist, or always argue with people
+- dni if you are proship/lolishotacon/ship gross stuff [lawlu namirobin sanpudd etc included.. theyre odd to me...], zionist, or always argue with people
 - basically dont be a weirdo and we will get along just fine (𝓯𝓻𝓮𝓪𝓴s always welcome 👅👅)
 - i cant think of anything else but im a serial hider no offense
-- roleplaying is fine if its not super serious and its jokingful
-- u can take inspo from my ponies but no copying word for word bar for bar ill explode you
+- roleplaying is fine if its not super serious
+- u can take inspo from my ponies but no copying word for word bar for bar. or ill get you
