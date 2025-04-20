@@ -5,7 +5,7 @@
 - idm if u come up to me when im sitting w other people i just might not be as talktative
 - my autistic ass is suuuperrrr bad at holding coversation if i dont know you that well... bear with me 😭
 - very fixated on one piece (and jojo,,, its like a sleeper agent) so i'm willing to talk about them at anytime with whoever :]
-- make sure to sign my atabook and [strawpage](https://shirapudd.straw.page ) :D (tailored for twitter but idc im not making two)
+- make sure to sign my atabook and [strawpage](https://shirapudd.straw.page) :D (tailored for twitter but idc im not making two)
 - normally i sit either in pkmn/dandy area with my irls, at spawn in the OP area on 18+, or docks on safe
 - ask me about my rarepair/polycule ships please dot dot dot.. (feel free to sit in ship skins with me :3)
   
@@ -14,4 +14,4 @@
 - basically dont be a weirdo and we will get along just fine (𝓯𝓻𝓮𝓪𝓴s always welcome 👅👅)
 - i cant think of anything else but im a serial hider no offense
 - roleplaying is fine if its not super serious
-- u can take inspo from my ponies but no copying word for word bar for bar. or ill get you
+- u can take inspo from my ponies but no copying word for word bar for bar. i mean i cant stop you but like Yk... BE YOURSELF
