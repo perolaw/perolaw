@@ -6,7 +6,6 @@
 - my autistic ass is suuuperrrr bad at holding coversation if i dont know you that well... bear with me 😭
 - very fixated on one piece (and jojo,,, its like a sleeper agent) so i'm willing to talk about them at anytime with whoever :]
 - make sure to sign my atabook and [strawpage](https://shirapudd.straw.page) :D (tailored for twitter but idc im not making two)
-- normally i sit either in pkmn/dandy area with my irls, OP area on 18+, or docks/market on safe
 - ask me about my rarepair/polycule ships please dot dot dot.. (feel free to sit in ship skins with me :3)
   
 ![zoogl](https://media1.tenor.com/m/AXftSQneL_4AAAAC/one-piece-egghead-op.gif)
