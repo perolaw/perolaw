@@ -1,9 +1,8 @@
 ![woot](https://media1.tenor.com/m/Ig2RM4zD0uAAAAAC/one-piece-op.gif)
 ### — Y0RK / MAVIS ♱ ⨾
-- feel free to hide or cuddle or sit with me thats perfectly fine !!
-- usually offtab so just whisper if u want to chat
+- feel free to hide or cuddle or sit with me thats perfectly fine !! idm if you cover me that much
+- usually offtab so just whisper if u want to chat i swear imm very knd and talktative
 - idm if u come up to me when im sitting w other people i just might not be as talktative
-- my autistic ass is suuuperrrr bad at holding coversation if i dont know you that well... bear with me 😭
 - very fixated on one piece (and jojo,,, its like a sleeper agent) so i'm willing to talk about them at anytime with whoever :]
 - make sure to sign my atabook and [strawpage](https://shirapudd.straw.page) :D (tailored for twitter but idc im not making two)
 - ask me about my rarepair/polycule ships please dot dot dot.. (feel free to sit in ship skins with me :3)
