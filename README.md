@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=perolaw&color=6f875c&style=for-the-badge&label=meow" title="hola nigga">
+<img src="https://komarev.com/ghpvc/?username=perolaw&color=6f875c&style=for-the-badge&label=hi" title="hola nigga">
 
 <p align="center">
 <img src="https://files.catbox.moe/6dqf90.png">
