@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=perolaw&color=6f875c&style=for-the-badge&label=hi" title="hola nigga">
+<img src="https://komarev.com/ghpvc/?username=perolaw&color=6f875c&label=hi" title="hola nigga">
 
 <p align="center">
 <img src="https://files.catbox.moe/6dqf90.png">
@@ -12,3 +12,6 @@ feel free to sit with me ! i swear im sweet and kind
 
 <p align="center">
 dni if youre a zionist proship or like lawlu/sanpudd/age gaps of that sort... i rarely hide people nowadays idk im nosy
+<div align="center">
+
+[sp](https://shirapudd.straw.page)  [ata](https://zolu.atabook.org/)  [rentry](https://rentry.co/jabberwoke) [twwitter {be my oomf}](https://x.com/kujaveil)
