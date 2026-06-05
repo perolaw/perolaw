@@ -14,4 +14,4 @@ feel free to sit with me ! i swear im sweet and kind
 dni if youre a zionist proship or like lawlu/sanpudd/age gaps of that sort... i rarely hide people nowadays idk im nosy
 <div align="center">
 
-[sp](https://shirapudd.straw.page)  [ata](https://zolu.atabook.org/)  [rentry](https://rentry.co/jabberwoke) [twwitter {be my oomf}](https://x.com/kujaveil)
+[sp](https://shirapudd.straw.page)  [ata](https://zolu.atabook.org/)  [rentry](https://rentry.co/heterojoshi) [twwitter {be my oomf}](https://x.com/kujaveil)
