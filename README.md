@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=perolaw&color=6f875c&label=hi" title="hola nigga">
 
 <p align="center">
-<img src="https://files.catbox.moe/6dqf90.png">
+<img src="https://media1.tenor.com/m/G2ajYJt74tAAAAAd/nami-nami-elbaph.gif">
 
 <p align="center">
 feel free to sit with me ! i swear im sweet and kind and talkative i love to talk but very bad at starting convo first.. but also if youre like a big fandom person iwc with me fandom culture lowk annoys me
